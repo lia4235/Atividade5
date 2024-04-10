@@ -5,6 +5,8 @@
 
 *Além de melhorar nossas oportunidades de carreira, o estudo também enriquece nossa vida de muitas outras maneiras. Nos torna mais criativos, mais adaptáveis e mais capazes de lidar com situações complexas. Nos ajuda a desenvolver uma mentalidade de crescimento, onde vemos os desafios como oportunidades de aprendizado e crescimento pessoal. (comando para escrever itálico*
 
-Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida inimagináveis 
+Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de inimagináveis
 
-![](https://tenor.com/pt-BR/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739)
+![](https://tenor.com/pt-BR/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739.gif)
+
+$\sqrt25$
