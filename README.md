@@ -9,4 +9,13 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significativame
 
 ![](https://tenor.com/pt-BR/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739.gif)
 
+Comando de fórmulas:
 $\sqrt25$
+
+$\sqrt36=6$
+
+$\sqrt{3x+8}-1$
+
+$\frac{2}{5}$
+
+$\frac{3x³+6x²+8
