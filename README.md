@@ -7,4 +7,4 @@
 
 Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida inimagináveis 
 
-![](https://pin.it/2fOmvSxrH)
+![](https://tenor.com/pt-BR/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739)
