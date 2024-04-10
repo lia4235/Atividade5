@@ -5,8 +5,6 @@
 
 *Além de melhorar nossas oportunidades de carreira, o estudo também enriquece nossa vida de muitas outras maneiras. Nos torna mais criativos, mais adaptáveis e mais capazes de lidar com situações complexas. Nos ajuda a desenvolver uma mentalidade de crescimento, onde vemos os desafios como oportunidades de aprendizado e crescimento pessoal. (comando para escrever itálico*
 
-Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras 
-
-![]()
+Em resumo, o estudo é um investimento valioso que pode melhorar significativamente nossas oportunidades na vida. Ao nos dedicarmos ao aprendizado continuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida inimagináveis 
 
 
